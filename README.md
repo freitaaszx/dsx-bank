@@ -84,4 +84,4 @@ Bem Vindo!
 
 ## 👨‍💻 Autor
 
-Desenvolvido por você 🚀
+Desenvolvido por mim 🚀
